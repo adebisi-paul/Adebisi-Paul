@@ -1,4 +1,4 @@
-👋 Hi, I'm Adebisi Paul
+👋 Hi, I'm Adebisi Ovbokhan Paul
 
 🌱 I’m currently learning Cybersecurity, Virtual Machines, and Linux  
 🎓 Trainee @ Digital Skillup Africa (DSA)  
